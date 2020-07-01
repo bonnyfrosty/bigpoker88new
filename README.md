@@ -1,2 +1,1 @@
-# bigpoker88new
-Daftar Poker Online
+Kalian perlu tau bahwa sekarang ini kamu sudah bisa mengakses penawaran menarik dari <a href="https://bigpoker88new.com/">Bigpoker88</a> yang pastinya bakal menguntungkan member. Kamu cukup Daftar Ceme Online di salah satu Agen Poker Online Terpercaya milik kami agar langsung bisa meraih kemudahan dan keuntungannya.
